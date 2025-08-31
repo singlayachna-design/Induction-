@@ -28,5 +28,5 @@ Dr. Priya Dharshini continued with universal human values
 ####Cheif guest S Gurcharan Singh Grewal, Secretary-SGPC encouraged students with his motivating words.
 Learning, laughter and self discovery- all rolled into one powerful day💫
 #### So that's all About my Induction Programme's views 
-##Thankyou!!
+Thankyou!!
 
