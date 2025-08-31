@@ -17,11 +17,15 @@ special thanks to our guests of honour
 Er.Ravinder Garg-Cheif engeneer, Municipal Corporation, Ludhiana 
 Er.Rakesh Kumar-Gndec Alumns
 for sharing their inspiration journeys and encouraging students to grow their values,skills and vision.
+
+
 ### ✨Day3✨
 ###### Experts talks 
 Dr.Priya Dharshini on "universal human values"🌺
 Dr. Arvind dhingra on "student development via STEP nd TAC"🌺
 Dr. Arshdeep Singh on "Food":A pivotal role in student's life 🌺
+
+
 ###✨Day4✨
 ######Dr.Jaswinder Singh(known for JaswinS Lab on wheels) brought physics & maths to life through fun, simplified experiments.
 Dr. Priya Dharshini continued with universal human values 
