@@ -26,8 +26,8 @@ Dr. Arvind dhingra on "student development via STEP nd TAC"🌺
 Dr. Arshdeep Singh on "Food":A pivotal role in student's life 🌺
 
 
-✨Day4✨
-Dr.Jaswinder Singh(known for JaswinS Lab on wheels) brought physics & maths to life through fun, simplified experiments.
+###✨Day4✨
+######Dr.Jaswinder Singh(known for JaswinS Lab on wheels) brought physics & maths to life through fun, simplified experiments.
 Dr. Priya Dharshini continued with universal human values. 
 Cheif guest S Gurcharan Singh Grewal, Secretary-SGPC encouraged students with his motivating words.
 Learning, laughter and self discovery- all rolled into one powerful day💫
