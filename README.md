@@ -13,20 +13,20 @@ Honoured guests S. Maninder Singh Grewal ex cabinet minister and trustee of nank
 
 ### ✨Day2✨
 ###### 🌟A warm and inspiring welcome was given to the newly admitted students at gndec. Studens were introduced to the college's legacy followed by alumni-Sangam Arora and Arshpreet Singh shaping how dedication shaped their success.🌟
-#####special thanks to our guests of honour 
-####Er.Ravinder Garg-Cheif engeneer, Municipal Corporation, Ludhiana 
-####Er.Rakesh Kumar-Gndec Alumns
+special thanks to our guests of honour 
+Er.Ravinder Garg-Cheif engeneer, Municipal Corporation, Ludhiana 
+Er.Rakesh Kumar-Gndec Alumns
 for sharing their inspiration journeys and encouraging students to grow their values,skills and vision.
 ### ✨Day3✨
 ###### Experts talks 
 Dr.Priya Dharshini on "universal human values"🌺
 Dr. Arvind dhingra on "student development via STEP nd TAC"🌺
 Dr. Arshdeep Singh on "Food":A pivotal role in student's life 🌺
-###Day4
+###✨Day4✨
 ######Dr.Jaswinder Singh(known for JaswinS Lab on wheels) brought physics & maths to life through fun, simplified experiments.
-###### Dr. Priya Dharshini continued with universal human values 
+Dr. Priya Dharshini continued with universal human values 
 ####Cheif guest S Gurcharan Singh Grewal, Secretary-SGPC encouraged students with his motivating words.
-####Learning, laughter and self discovery- all rolled into one powerful day💫
+Learning, laughter and self discovery- all rolled into one powerful day💫
 #### So that's all About my Induction Programme's views 
 ##Thankyou!!
 
